@@ -8,7 +8,7 @@
 
 ---
 
-Dresden, Germany | Available immediately | arcangeelmiguel@gmail.com
+Dresden, Germany 
 
 </div>
 
