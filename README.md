@@ -16,7 +16,7 @@ Dresden, Germany | Available immediately | arcangeelmiguel@gmail.com
 
 ### ABOUT
 
-Industrial Engineer with 3+ years of experience in process analysis, project documentation and reporting under international standards. Currently in further training as **Data Analyst & AI at WBS TRAINING Dresden**, transitioning towards Business Intelligence and Data Analytics.
+Industrial Engineer with 3+ years of experience in process analysis, project documentation and reporting under international standards. Currently in further training as **Data Analyst & AI at WBS TRAINING Berlin**, transitioning towards Business Intelligence and Data Analytics.
 
 Focused on structured analysis, data quality and transforming complex data into clear business decisions.
 
@@ -54,10 +54,10 @@ German · English · Spanish
 
 ### EDUCATION
 
-**B.Sc. Industrial Engineering** – UNEXPO Antonio José de Sucre (2016-2021)
+**B.Sc. Industrial Engineering** –
 Officially recognized by Chamber of Engineers Saxony
 
-**Data Analyst & AI** – WBS TRAINING Dresden (2024-Present)
+**Data Analyst & AI** – WBS TRAINING Berlin (2026-Present)
 
 ---
 
