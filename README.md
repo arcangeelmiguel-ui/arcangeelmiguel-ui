@@ -4,7 +4,7 @@
 # MIGUEL GAMARDO
 ### Business Intelligence Analyst · Data Analyst · Industrial Engineer
 
-*B.Sc. Industrial Engineering – Recognized by Ingenieurkammer Sachsen*
+*B.Sc. Industrial Engineering*
 
 ---
 
